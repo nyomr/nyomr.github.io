@@ -1,1 +1,0 @@
-# nyomr.github.io
